@@ -10,5 +10,5 @@ Founder of RIORA
 
 
 hey saba
-how are you?
+
 ki koros?
